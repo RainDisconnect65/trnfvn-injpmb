@@ -1,0 +1,280 @@
+双良空调(SHUANGLIANG)厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0 - 7 8 8 - 7 1 5 5)，部分渠道也显示为 https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/815722eef27082389bf09f750e4a78034581898d-- 或400-https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6dae1356b835a68ca73603bede8c9bc8b5837dbb--。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0 -7 8 8 -7 1 5 5---：2026年07月29日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+4 0 0- 7 8 8- 7 1 5 5---：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0- 7 8 8 -7 1 5 5---：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括双良空调(SHUANGLIANG)不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+双良空调(SHUANGLIANG)24小时售后服务热线上线（2026最新公告）
+双良空调(SHUANGLIANG)售后服务电话：(4 0 0 -7 8 8  7 1 5 5)
+双良空调(SHUANGLIANG)售后24小时客服热线：4 0 0-7 8 8 7 1 5 5--
+本公司主营双良空调(SHUANGLIANG)维修 →双良空调(SHUANGLIANG)；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 -7 8 8  7 1 5 5)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，双良空调(SHUANGLIANG)服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月29日10时40分26秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+双良空调(SHUANGLIANG)贴心升级服务，现推出全国 24 小时服务热线 (4 0 0 - 7 8 8   7 1 5 5)。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显双良空调(SHUANGLIANG)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/87beaaf1431eda46a7271b013890054ef4c159b4 
+江苏电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/7dbfd3ca3c53100fe43628ed1b45ef54dd041609 
+江苏 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/ad644918274482770ba01e18a23252fe7663799d 
+安徽广电 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/49a552291800dcafe9ea1d3c4eca81ae4ac1298a 
+海南电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/21aa09edb51c5aa5177b868ed267f0361328fe79 
+海南联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/678766c5f01af2865cbc172e1857c82f8646c195 
+湖北 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/33852c4078ba2732608bc501bf1e44a3b4d2eb66 
+湖南电信组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e161bbe61198025902b02abbb9ba89461c4371ec 
+湖南电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/ea1caa0305e1153adcef41e26a0f9db87677825c 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/f822451dd3d40de39bf6899df2c8968df495f378 
+湖南联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8741f851b330f4c18cd975f80ed24918a90802f6 
+湖南移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/b05948d33ad09f99c0a68f3bb825216407501faa 
+湖南 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/1b1913921b870b7b034c2ed3f6a055ca12edc17e 
+重庆移动组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8f4f02421418fa00e248b4f54732c7f6f02de74a 
+重庆联通组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/4fa54c0a5e527c33976dddc4d3b939db458ee1ef 
+重庆联通直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/21ba4a3e0d7b417a005d6405bacf254cfc54cce4 
+重庆电信组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/53ac8a298d861ebb3c45dc6586313ba4087d262d 
+重庆电信直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/3d56da19445a49f4419c67c4afa495d6383ef8cc 
+重庆 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/736414e413e1490fb46b7442b909943b408b7a57 
+四川移动组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9dbfa4b1a129a56389b031bfbe44c55fb8ced4ef 
+四川电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/36695a2c126e18e9d13e6aeb5d8661a15de68d82 
+四川电信 IPTV 组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/b77a96144cebc805b4f10de2f0c13fa1bf0a4df3 
+四川广电 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6f349b4d0b6d78bb2f8bd60936689ea3ca70ac82 
+四川联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/bced2c3355fd325defb7cb94b8998b471417e6ef 
+四川联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a6109e9f53681a92ebe7f51ff6a8dc7ca236d4a8 
+四川 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/00c339a4e946fe5933f25d069a05bd95099945a5 
+云南电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/1b51c1388ee6edce7ee68bff627ddbd1a7651512 
+云南移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/4e8f88ce0723632d45946296bbf9b90ef2a6afb3 
+云南 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/32446b1b2199479a1cb0b5c22b8bf42eda5b9014 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/372bd61a94d71c50e5606346129cdc9e2265db12 
+贵州移动 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/3cef5870425007b8bf447a6e0b3c95446896e72e 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/cf611e6bffe4732a2701232eea3013309b8b1377 
+贵州联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8ebc8763664da5db3dcadeba3247b69327e2b440 
+贵州 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9ce804f0ada108933d2990f08e7e6b4be69cee8a 
+福建联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/971675894cc3b84a0f4797707a30cb1ec1df53b2 
+福建联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8523dd0df6717939825ba3582fcb46a1cc2dbc0c 
+福建移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/7c76fc301ea2e7535dd735ba4e3c9830c566105f 
+福建电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d7ec1e7d92ea98c77f4c60d84e3ba8abe1a0fc58 
+福建电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/16a77d9e26f3deeeb45bbfdb09c980d72672270d 
+福建 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/839d513b2503944848199de7fddbd925464b294e 
+安徽移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9ccd22ba29b02f6206984bb02819604760b680b3 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/5339cc0e25fdcb557db29dd67e64cfeda09f87a0 
+安徽电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/7144a7fb4087004df81b26c0879642b95966c662 
+安徽联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/f240fceecf4f1da1dae51f7639234b1bc7e187fc 
+安徽 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d5f5861ccc1d5d225580f7a258b19c2e00983edf 
+陕西地方台直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/efba01a64779e1779c6025690f33102c1869cb21 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/4134d89bb6dd935c0cbf62391a37424444a5d7d1 
+陕西电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6eefa484293708a7e009419770d07b228ed08b6c 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/abd5eadca2c5a97ef150e1ac4d49d46bbb424086 
+陕西移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e742065a4db35e56743460ed03a0c348cf65a5c6 
+陕西 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/c56de0dc2880e9bae992f934c4e9634891e8fd9e 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/3c20543d8f89495ef7eb7f2eb8f02750fed32f4e 
+甘肃移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/b16e4f148ad43d9375d5d3bf1b2cd3a2f618fee0 
+甘肃 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a3782ab2a7cbf317b6da7ed6c66a69a1183be214 
+山西移动组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/ce46385c257b509cd507b11ae6ef2b3b8fc2e4f9 
+山西联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/39c9915d27e8245adcaac0300c3bf0739c05da6c 
+山西联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/f16d247f3c545ec0b567a8015bac35f01becce12 
+山西 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/b644af2a2ac7f3c5893078eed54232bad00a2e43 
+天津电信组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6a4bd88c2dca38ddb78a88349d17a566076d2cad 
+天津联通组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/4def45640cee47ad733c6c20451ee41ba03b1c65 
+天津 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/1c59135becc58af35719f3a2dfa0718be7ec0b24 
+上海移动直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/1e04d02c54a06f20f31424706b91c5d5ee829a1d 
+上海联通组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/3d1300b76339d9f028ad064b4e024465339531e7 
+上海联通直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/81579d93f2070d8f905edc78299ab15ad7774167 
+上海电信组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e6b0ed97d89e2e2f9d54cbb43da5b88b0e9dc2ee 
+上海电信直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d8406277492d2a1c4282507abcf9dbe887b447be 
+上海 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6eaba1c63230a3da168666d9e7978604d0b1d0a9 
+北京移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/5dc8ab54de7dda0a1b42b665bd0aa44b24194ea0 
+北京移动组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/91788b0ac931bb82855890ba07c26599b92a015f 
+北京电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d047bc8cb04eb6a88cf9b28c6b2d91557e024b06 
+北京联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/24bde3ac53706d15dbfe5813fcf63d29cb87794c 
+北京联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/c29dba9e1cfd5bfc20814878627595fdeaabcd35 
+北京 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e79d0d5dd8059422f41d45e7f19eae37bf92a55b 
+部分地区的移动可全网通用： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6fbe2c3aa3387706470ee67c6897a7292ffcfddf 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/b0013d5660dcde88e98b62d8225943161fa43c6c 
+广播电台下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/ecd9aca85e34116ec8d119cb7f1c594f13de4d80 
+国内景区直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d2e165364367b3cc0ea95aeedd750a2e8018bed1 
+轮播华数黑莓下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/3d7c5ebde2b410c84e81349753d61a85eba0a279 
+台湾香港澳门电视台直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/dffe4fb30b2550b33b44956e36ef777802b3b27e 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/4dbc639f3526000ed09c1fd3bceb07b8c2984de9 
+国外电视台直播源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/537b8159065ef696e8513c826524d6a42d4f8f14 
+卫视地方台安徽农大下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/317f247a8052159dc856f4ee06f8e8d475d07b34 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/3f6f91353e6e87982884885e79870252f0420fa9 
+卫视上海源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/aa6d718865f3d722b9b5afc3c9bf49eabaede853 
+卫视重庆广电 下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/102508e22319dfb37c5cf8626d66691c65b47284 
+卫视百视 TV 下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/99ca2002250094bbf9e2608574ae1ae531729ad6 
+移动 IPv6 直播源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/5f7672975c32317f5d88c04999a7bf8d8c985ad4 
+国内电视台 IPv6 直播源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/a2c6188ef640b7c23a3b1b420bf788ac7efc97ed 
+各大卫视、上千个地方台： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/099640bc5ab975d917e5b724d7cbccd4836b8280 
+国内电视台直播源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/b949d69b2b96127b5c2aad1bf8b719b7ae135287 
+全国可用直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/477f62c46de30581e21bd7de6f3093d115a6d757 
+包括完整内容所有已知频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/91a07752df16504ae289816af76ef39cc9d2899e 
+除成人内容以外的已知频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/99c3f43266c20e4957ed5639ce39f12f30334465 
+收集来自世界各地公开可用的 IPTV： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ccbfab52aad2e139d01fd50f211fe595b95d4ffe 
+稳定地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/810cd2a7c1c98e9da5d0b8999a635f1744512a71 
+2026-07-15 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0df3eb66c3aa63b0565f43bbe67a9c3cf91659a9 
+2026-07-15 更新 IPTV 工具： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/522b28726edf9c611ac42da9697385c99557304f 
+2026-07-15 更新世界各地 IPTV 频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/dd488767c3e98caa8af0e280dfc57462088722ad 
+2026-07-15 更新全国可用直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/2f9795e459ed443f6d9a8431601ff5c6c03ccb88 
+新增各地运营商的 IPTV 地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0e7f486c3363d36e922d3b4f31c67adc2a9be13b 
+插件推荐： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/74a43f70fb713d0a3458fb1100881ec683ab7b02 
+视频教程增加： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/e02b4258dce9a5163041181c73855c4ec6595f91 
+咪咕源失效： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ef2838a51255cd705ecd01f12d404e48e5edfb6c 
+2026-07-15 更新各地运营商 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/b0f6acfef6807d38153a135174b508c6d78f9472 
+2026-07-15 更新台湾香港海外直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/98b7988f72ab7bae4023bdc61dd2f700ac8798ef 
+新增辽宁广电直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/eb5f1928a08207d5661d740a2bd7a3294deef1db 
+新增江西广电直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/daae86a51a77404db1e06a8eb0fa7b562da0d306 
+新增湖北广电直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/e88e7d10c9a00d19782a5504512f7d1e5ff58428 
+新增中国广电 cctv + 卫视直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/572bac730e63946225599b1e991af0ef861daa1f 
+新增辽宁电信 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/161fe5b975a2ef2ec94ca384b34fa93c3ac82b1d 
+2026-07-15 更新台湾香港海外直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ce5ebae9de35d96782f6f90b7243575e1f5ac651 
+新增辽宁移动直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/2cac2f6c0684865521bff961e6f88affcd1d8541 
+新增浙江杭州华数 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/9b46e783cf65fb01770b40a739838d9ce140ecfd 
+新增广东联通 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/c9f415b96d9f208d9a03293b153bed8bb9741f7b 
+新增四川广电 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/62ab515270ff4e4be106b740109eee24486c3b16 
+新增云南电信 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/9111514b49d64adced1c3e31e97201e68e66fcd6 
+2026-07-15 更新国内电视台直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0c75ad4b879191a4705200c06f5ffd952e5167f7 
+新增福建电信 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/e8fe66b6e2b5faf36a75c712e2d12397bb737c6e 
+新增天途云 CCTV + 卫视： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/94391171116f4be667054543e535c9cd2017b5bb 
+新增腾讯云 CCTV + 卫视： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/2768d60068ccc4972f6f6b1714574bf196b7e67b 
+新增 CCTV 付费频道直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/61d4388c245327ad0aa9f218488e311792bc6360 
+新增广播电台： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/6424fab87eaf7d5970e6638782404005b5aa5815 
+2026-07-15 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ba0f56b680976cae1c2f7bdb3fa8fd74146bceb6 
+2026-07-15 更新 台湾香港海外直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/bbb5ade2ea4bfd268d9533bf5b91924d6beb4b20 
+2026-07-15 更新 国内电视台直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/1c00daba1a7d3bfb7e965853688f23b14b06b2b1 
+国家直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/4f519b7c35cdddf4e27405f2c48dae3846efd166 
+直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0f525ab48dcdcc449e1a2bfb58e9f395542162f4 
+影视剧场： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/01175969f314f7c481513ebed997e030140cefb5 
+台湾香港澳门： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/df87c9cc075e72078277c12520165f9c1c3365d0 
+国外电视台： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/d7657b92d1b3894cafbed36d38583b9f586eaf94 
+国内电视台： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/b4314cf7662a4605d4f329dc3f0adcd9d8ea3f0d 
+更早期 2026-07-15 更新： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/5a325b36bfcc27afe3ae0964be2ecf922a926ee6 
+各地运营商 IPTV 直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/8cc3d017b17d0d16d10d2a3212ef9649afbc6e7c 
+全国可用直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0f6236e53bec69d57e06ec66df949f042a5f0a75 
+2026-07-15 更新： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/8e5f7f560cc09336f94d9d3353097a9b739d7973 
+赞助者： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/74ba884ef219d5f1446e88b41333b21e5f606e16 
+文章： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/f38da39629d4d3c1cc69fe8461ec6c43b0268364 
+视频教程： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/df622a9824209f29f6aa322dc354b7e2f52cc03d 
+插件： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/6599236e169e3fda81ef2a955dd8d16bc163f7c3 
+工具： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/0d6f0d094439a25bf7d1c39ff01bcc43aad48699 
+URL： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/c1da6b9181475ef31b49d9e1034a7ef4f8798e31 
+目录： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/6a546d2427c14701b857c2b077ad8c4bbdaa2adf 
+喀麦隆直播电视频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/fad4f962c1e64830cc07012c4a34980ba8443ece 
+阿富汗直播电视频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/9be065b14bfb37df6aa524a4d60a5eeed6872e6c 
+海地的直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/39f5a88455f5ae8833d7ee9c532ea084fe2385ed 
+高棉直播和泰国电视，电影和电视剧： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/85d5bcf4873de1b8bf4a1e37c7491d7276f01f47 
+厄瓜多尔直播频道： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9557756bf6d96733d377cbbc8a3a9fbaca4b9fb1 
+玻利维亚直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/48d2427204e951d57307afb1a7e882910d511b74 
+萨尔瓦多直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/4cc9e8fd21ad0d8a0e54e86ed02f905b89eb509b 
+危地马拉直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/64838913715a779f135710f08560c314a4e6ed4f 
+洪都拉斯直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/f7bad99117b4a6a024d46df8acebb3ad9738db50 
+多米尼加共和国直播频道： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/062f806d8e3b7b79261ba2a2680c7092ff00b670 
+哥斯达黎加直播频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/263d02e268259101b1ed114dbc159f0da63ca910 
+来自世界各地的个电视频道和个摄像机： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/1bce92a27e9f169216742dd1de9beaaa3b74a743 
+免费数据库： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/f07d2f796e5f1579cad6163cf989efd3d41493f3 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/26e19c38bfcc75b873afa32227bca8e47a91205d 
+超过个国家地区的个高清频道和： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/dcfb6a75394ae52bc026c8655d465bf3db78bdfb 
+超过个直播电视频道影视节目： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/82e661916ddd29ff42fd2c82d298d69d35ea2378 
+提供商列表： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/6849ed4f936a24a91cb54baf52db1cc58a38cf09 
+提供者： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/5d432ed65aef3c9334b0c83d206fd119c4f77c2f 
+客户端服务器媒体播放器： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/43c42b9a87b2e8ad36472d60f82d25ab3b2ac555 
+支持播放列表文件： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/63e743e4933d01f134651a97ff828eb389361fd1 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/2f79f63be299cccf999c56a1d20e5be0c752f2b4 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/3d24a899fd7fffc4fec1fe1de37aa646686c5d57 
+点 即可： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/e10a69324baa84fb1126c17685f52c4a92260ceb 
+第三行不用管： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/d671d19c2664dcf257de5b99ca70735929c42b22 
+第二行输入上面给你的地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/4b39e9b9bd8baa0adb605d61c1edc31a8ac64a71 
+第一行随意输入一个名字： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/fa55014b7add7232f54ab65f32964d3a230b5795 
+选择 远程播放列表文件： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ecf593dddf5c6e6b57184741084689e5fae4eabb 
+打开 点击 号： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/7b9b35faa8c5adb845337c0ef44efd141d8be961 
+食用指南： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/d387aee3b53265a67878e0dfb6d9cf177b2d0a1d 
+适用于 macOS 的现代媒体播放器： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/1168a04c24c1e5faf40072c88c84052633a9450a 
+直播电视和广播客户端插件： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/7f25ba303cab785370afa37cbbcc78608c5ed90a 
+具有库支持的免费跨平台媒体播放器： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/9cd9c4c03785611fddd98368647c689710f1ddb9 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ed0d22ca832185ab2faf56d9852371c246b78555 
+支持 IPTV 流的应用程序： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/70300a2d88c1ba0a69135532626f06f454093fe2 
+工具： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/722ff453006cad052059007ee36a2421c9f99848 
+轮播华数求索爱奇艺 2026-07-15 更新： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/7b3bc3e4f356f68c5805d56a571f6624da0e668d 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/1cbdab3b52443b579a03239cc6680aee88a0812b 
+台湾香港海外直播源 2026-07-15 更新： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/a0b4a00aeb04aae6d510adfac9a7fc1952b9b151 
+各大卫视、上千个地方台： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/bee7ab9af81dddf9fd82590b5e9557247103b2d1 
+国内电视台直播源 2026-07-15 更新： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/7374a6d99e658b12b5f66607468c07709da73b6d 
+卫视腾讯云： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/df9da2a98706ceb715cd3c0ac479d106a54ac600 
+卫视平顶山学院教育网： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/896bc73462818b0959c1a45168253f90804ec557 
+卫视天途云： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/4c34db79a4257926f4ecd09b9782c1b89e866efd 
+卫视地方台安徽农大： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/706e7309ee3689accad1fc962a910b3f113dc66b 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/2003f6e7d7f56a9b42a651904b9310a604a42f3a 
+央视卫视广西移动直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/b7d3729b0b8f5116e80f9a17c506ae97fb235abc 
+付费频道直播源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/f81542a5d6927ade2f719e484e3fb241c056df79 
+国家直播源多个全部有效： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/f8e17826139842f5402b5013aa1618fe325b6cc3 
+直播源全部有效： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/53a5db52b30ed4da8a4bce8b15bd87606814f850 
+全部有效： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/beaa2da1dbf323f74569682eec2c352f7c814cbe 
+直播源全部有效老电脑别用： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/c2780f56725c6437e948e04471090d63d163ddf4 
+影视剧场全部流畅： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/594d81fe542a39a1699274442a82e2c4ddfd5e2e 
+全部可用： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/c6c9d72d50ca5ab6724f3d9382b1ad791429193a 
+我的播放源： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/a3bf5a2791edd4a7040a2465c50e80d8bed65f81 
+其他直播源 不确定有效性： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/da5ad52ea1f6bf26f9d68c74adf5647ea77ecddf 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/RainDisconnect65/trnfvn-injpmb/commit/f00a7c15fed6d4e419a950d26c6a09a51598a770 
+新疆 IPTV 直播源： https://github.com/RainDisconnect65/trnfvn-injpmb/commit/98f0db8e69f643d55e3c90b580d334d362731ed9 
+内蒙古联通 udp 组播下载地址： https://github.com/RainDisconnect65/trnfvn-injpmb/commit/3da1a4f1ad2e3e251bb51b4fc85e17a293569e79 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9695177130fb6bfe14a40b9300e3745cb894bc05 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a5c70331d0951924b07cfaa0bc79448864814df9 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/bc85923ba18ac82d6e39ceb153bcf2b4385aaad2 
+内蒙古 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/58682ae4242f85a258eec49dc5f76f9b793e7089 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8478b4a2a41a87cbd356103d7c59ab9477f4d3da 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/20711bacad6d9389cfdd0b57d193424dc4c5c423 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d94f256aa2db8feadc91e1a1cf60f1ed0679504b 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/23de0dd0b1fe85f6ad4e51c363b507007110926b 
+黑龙江 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/90012c4c3cebf0a5f82385388d8215472a665cb1 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/8ce9a0c1ecf81b1a5674bd82915838b019a7a4a3 
+吉林 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/18dd2e992d05816755604c25e3e0161a40d1be03 
+辽宁移动直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/c74e311263443796e8ae546112e85cde322f65af 
+辽宁电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/9faf31231dfb210d3fe3a2b72fd04c346b5c54af 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/557b987d33b85de18dafaab8264ab448726b5cfe 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/dc690acade3bb0bb06777f638393808be1bbb869 
+辽宁联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e3d8248c86ec607c942ba2d642a8c21b698bc666 
+辽宁 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a3107db6a711ff6706e65242cb9926f2b2d8a399 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/6594e4ff3d39f21f385e03d7d4fea6edd74feacd 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/2a366256e3d00959fd115b73e2679d4ef86633cc 
+浙江联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/edd6e1c8d512d97d542d17ebe4c15674f212e4af 
+浙江移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/81b59f8a7bce9caab179aa26e94c883d512486e4 
+浙江 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/06ceb195fd9ff12e42bdb2aa263d7156827da909 
+江西联通 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/bb28bc6a5b274b8d16eb6e47dc37243ac6ff5787 
+江西电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/0cf237290b482048e37aa0c06f5404eafa8a61c0 
+江西电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a43b2303263ae9f0c9edf67d910a8ad4ae7f4e02 
+江西移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/721442f16e25295bae43a4afa262a1eefc8cd37e 
+江西 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/79e1a51f583a256b8f1150e61d69be090d5e4d48 
+江苏移动 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/e894ea16cbafb0b5f96eee5ee37a16d3bbb73da1 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/aa21d81b5cb884c0ba5064ecaf1fa1631c0b7139 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/86d352dd7bd372608dfcd11fc2b6f175a1eda60a 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/a4fd21471f92c41c1e29b6eb03924e747f680ed4 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/49bd5da8efd4c55e2a65b6781456049f05d68a16 
+江苏电信 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/17d45f257aa1586e9e46492819171e9c3a34eca9 
+江苏 IPTV 直播源： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/78b240818d8a9620e3548de23378ab8ac941080f 
+安徽广电 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/edd121f689c163b53433ce163d40a58cf79fce15 
+海南电信组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/885bd01c18d3bc94b065148d98be145bd439cdfa 
+海南联通组播 IPTV 直播源下载地址： https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/67144b3be1e7a0f860796e8994680b2a691c2058 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月29日10时40分26秒
+来源：https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/ebe606505c9ad6d54f681c825545a9ffcdc9942a 
+来源：https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/c7a1c4d0e0efef4a6783b879d255a9475551eba6 
+来源：https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/820a3e26d7d83c39518cb58d20b919ee825180c0 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月29日，10时40分26秒
+sdf34erfsdf0728.1
